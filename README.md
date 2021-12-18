@@ -2,7 +2,7 @@
 - Hyunsuk Kang, Sion Kim, Soram Kim, Seungyun Lee
 
 ---------------------------------------------------
-## UCC (1 mininute)
+## Video (1 mininute)
 https://youtu.be/_OoKlE38nhs
 
 
